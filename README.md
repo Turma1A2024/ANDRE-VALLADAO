@@ -6,4 +6,4 @@ Esse perfil é do *André Luiz Valladão*
 
 - Você pode me encontrar em 📫
 - 0001130588099@al.educacao.sp.gov.br
-- ![.](https://media1.tenor.com/m/cdtU93iZYs4AAAAd/neymar.gif).
+- ![.](https://media1.tenor.com/m/_oiAhqD-HnQAAAAd/neymar-santos-neymar-jr.gif).
